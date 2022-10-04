@@ -1,3 +1,3 @@
 # AnastasiaZaikina
-**Email: ** az288756@falmouth.ac.uk
-Contact
+**Email:**  az288756@falmouth.ac.uk
+
